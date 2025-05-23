@@ -1,2 +1,2 @@
 # dreamhouse
-what i want for my dream house. 
+I'll present what i've been dreaming about my own house.  
