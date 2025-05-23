@@ -1,2 +1,2 @@
-# dreamhouse
-I'll present what i've been dreaming about my own house.  
+# start coding
+I'm doing my first code here. 
